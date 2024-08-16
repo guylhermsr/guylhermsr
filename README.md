@@ -1,16 +1,16 @@
-## Hi there 👋
+### E ai familha de boa 🤙
 
-<!--
-**guylhermsr/guylhermsr** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+- Olá, me chamo _Gui_ 👋
+- Estou estudando [_Alura_](https://alura.com.br_) 🤖
+- I know speack _English_ (a little bit) 🏈
+- Utilizo esse espaço para _compartilhar meus projetos_ 📚
 
-Here are some ideas to get you started:
+### Entre em contato para _novos projetos_ e para bater papo 📫
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+guylhermsenhumbigo@gmail.com
+
+### Para mais informações da minha vida pessoal me siga no Instagram 🎬
+
+@guylhermsr
+
+![](https://media1.tenor.com/m/rikqsLk9Op0AAAAC/seriously-anxiety.gif)
